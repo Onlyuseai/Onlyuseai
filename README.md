@@ -1,4 +1,4 @@
-- 👋 Hi, I’m 
+- 👋 Hi, I’m unemployed person live in korea
 - 👀 I’m interested in ai tool with no-code such as openai, bubble, cursor etc..
 - 🌱 I’m currently learning cursor
 - 📫 How to reach me runching on store
